@@ -1,10 +1,11 @@
 **Dr. Dominique M. BACHELET**
 
- CONTACT INFORMATION
+ MISC INFORMATION
 
-*Email:* bacheled@oregonstate.edu                                                         *Work Phone*:541-737-5110
-
-*ORCID:* 0000-0002-4862-9495                                                             *Nationality*:USA
+*Email:* bacheled@oregonstate.edu                                                         
+*Work Phone*:541-737-5110
+*ORCID:* 0000-0002-4862-9495                                                             
+*Nationality*:USA
 
 *Web sites:* https://www.researchgate.net/profile/Dominique_Bachelet;https://www.linkedin.com/in/dominique-bachelet-860b779/
 
