@@ -12,7 +12,7 @@
 
 **ACADEMICTRAINING**
 
-**Ph. D**.             1983    Colorado State U., Fort Collins, USA. Botany and Plant Pathology.  
+**Ph. D.**             1983    Colorado State U., Fort Collins, USA. Botany and Plant Pathology.  
 
 **DEA**                1979    Universite de Paris XI, Centre d'Orsay,France. Plant Ecology.
 
@@ -34,7 +34,7 @@
 
 **RESEARCH FUNDING**
 
-2017-2018       Spoilt forchoice: a review of downscaled climate datasets for the PNW. **USGS NW CSC**. $79,690. PI: D. Bachelet
+2017-2018       Spoilt for choice: a review of downscaled climate datasets for the PNW. **USGS NW CSC**. $79,690. PI: D. Bachelet
 
 2016-2019       Tools to bridge the gap between static CMS maps, models and stakeholders. **NASA**. $152,305. **PI**: R.Kennedy, D. Bachelet.
 
