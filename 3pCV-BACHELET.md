@@ -1,30 +1,28 @@
-**Dr. Dominique M.** **BACHELET**
+**Dr. Dominique M. BACHELET**
 
- 
+ CONTACT INFORMATION
 
-**CONTACTINFORMATION**
-
-*Email*: bacheled@oregonstate.edu                                                         *Work* *Phone*:541-737-5110
+*Email:* bacheled@oregonstate.edu                                                         *Work Phone*:541-737-5110
 
 *ORCID:* 0000-0002-4862-9495                                                             *Nationality*:USA
 
-*Web sites*:https://www.researchgate.net/profile/Dominique_Bachelet;https://www.linkedin.com/in/dominique-bachelet-860b779/
+*Web sites:* https://www.researchgate.net/profile/Dominique_Bachelet;https://www.linkedin.com/in/dominique-bachelet-860b779/
 
  
 
 **ACADEMICTRAINING**
 
-**Ph. D**.              1983    Colorado State U., Fort Collins, USA. Botany and PlantPathology.  
+**Ph. D**.             1983    Colorado State U., Fort Collins, USA. Botany and PlantPathology.  
 
 **DEA**                1979    Université de Paris XI, Centre d'Orsay,France. Plant Ecology.
 
-**MAITRISE**      1978    Université desSciences et Techniques, Lille I, France. Plant Biology
+**MAITRISE**           1978    Université desSciences et Techniques, Lille I, France. Plant Biology
 
  
 
 **PROFESSIONAL EXPERIENCE**
 
-1998-current    **AssociateProfessor**. senior research, Department of Biological and EcologicalEngineering. Oregon State University, Corvallis, USA.
+1998-current    **AssociateProfessor**. senior research, Department of Biological and EcologicalEngineering. OSU.
 
 2009-2017       **SeniorClimate Change scientist**, Global Change Team Leader, Conservation BiologyInstitute.
 
