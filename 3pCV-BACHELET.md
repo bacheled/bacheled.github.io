@@ -26,7 +26,7 @@
 
 2009-2017       **Senior Climate Change scientist**, Global Change Team Leader, Conservation Biology Institute.
 
-2007-2008       **Director**of Climate Change Science, the Nature Conservancy.
+2007-2008       **Director** of Climate Change Science, the Nature Conservancy.
 
 1989-1998       **Assistant Professor**, Department of Bioresource Engineering. Oregon State University, Corvallis, USA.
 
