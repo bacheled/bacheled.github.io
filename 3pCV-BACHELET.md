@@ -11,7 +11,7 @@
 
  
 
-**ACADEMICTRAINING**
+**ACADEMIC TRAINING**
 
 **Ph. D.**             1983    Colorado State U., Fort Collins, USA. Botany and Plant Pathology.  
 
